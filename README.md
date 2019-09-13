@@ -1,0 +1,2 @@
+# kuuhakuburiq.medandakwah.com
+Dns
